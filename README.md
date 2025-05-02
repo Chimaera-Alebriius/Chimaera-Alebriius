@@ -1,4 +1,4 @@
-## Hi there, I'm Tenshi (天使) 
+## Hi there, I'm Lumae
 
 <!--
 **Chimaera-Alebriius/Chimaera-Alebriius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
