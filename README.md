@@ -1,5 +1,5 @@
 ## Hey there, I'm Nozomi (望 / 希 / 望美). I'm a student, learning how to color shade and making my own programms.
-  ![sticker_4](https://github.com/user-attachments/assets/903f0571-fe29-4273-8f97-505715d322a0)
+![sticker_4](https://github.com/user-attachments/assets/903f0571-fe29-4273-8f97-505715d322a0)
 
 
 <!--
