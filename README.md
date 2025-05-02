@@ -1,4 +1,6 @@
 ## Hey there, I'm Nozomi (望 / 希 / 望美). I'm a student, learning how to color shade and making my own programms.
+![sticker_4](https://github.com/user-attachments/assets/903f0571-fe29-4273-8f97-505715d322a0)
+
 
 <!--
 **Chimaera-Alebriius/Chimaera-Alebriius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
