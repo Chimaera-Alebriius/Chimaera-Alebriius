@@ -5,6 +5,7 @@ I love spending my free time with playing Genshin Impact, Honkai: star Rail, Zen
 
 You can see me often in pt, mostly behind the Bakery somewhere.
 I also enjoy spending time with my friends. My personality is ISTJ. I dont talk a lot, but my friends often talk for me, so yea.
+![sticker_5](https://s3.getstickerpack.com/storage/uploads/sticker-pack/kinich-genshin-impact/sticker_1.png?5bd52bb23101f7b272aa35a6a468c0af)
 
 <!--
 **Chimaera-Alebriius/Chimaera-Alebriius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
