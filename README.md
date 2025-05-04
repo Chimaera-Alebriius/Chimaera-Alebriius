@@ -5,6 +5,7 @@ I love spending my free time with playing Genshin Impact, Honkai: star Rail, Zen
 
 You can see me often in pt, mostly behind the Bakery somewhere.
 
+I also enjoy spending time with my friends. My personality is ISTJ.
 <!--
 **Chimaera-Alebriius/Chimaera-Alebriius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
