@@ -3,11 +3,6 @@
 𝑰 𝒅𝒐𝒏'𝒕 𝒃𝒆𝒍𝒊𝒆𝒗𝒆 𝒘𝒆'𝒗𝒆 𝒎𝒆𝒕. 𝑰𝒇 𝒚𝒐𝒖'𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒓𝒆𝒒𝒖𝒆𝒔𝒕 𝒎𝒚 𝒔𝒆𝒓𝒗𝒊𝒄𝒆𝒔, 𝒑𝒍𝒆𝒂𝒔𝒆 𝒃𝒓𝒊𝒆𝒇 𝒎𝒆 𝒐𝒏 𝒕𝒉𝒆 𝒋𝒐𝒃 𝒂𝒏𝒅 𝒔𝒕𝒂𝒕𝒆 𝒘𝒉𝒂𝒕 𝒚𝒐𝒖'𝒓𝒆 𝒘𝒊𝒍𝒍𝒊𝒏𝒈 𝒕𝒐 𝒑𝒂𝒚.
 
 ![sticker_4](https://static.wikia.nocookie.net/gensin-impact/images/5/54/Off_We_Go_to_the_Nation_of_Pyro%21_Kinich_1.png/revision/latest/scale-to-width-down/250?cb=20240822115518)
-
- 𝙸'𝚖 𝚗𝚘𝚝 𝚝𝚑𝚎 𝚏𝚛𝚒𝚎𝚗𝚍 𝚝𝚘 𝚌𝚘𝚖𝚎 𝚝𝚘 𝚏𝚘𝚛 𝚠𝚘𝚛𝚍𝚜 𝚘𝚏 𝚌𝚘𝚖𝚏𝚘𝚛𝚝 𝚘𝚛 𝚎𝚗𝚌𝚘𝚞𝚛𝚊𝚐𝚎𝚖𝚎𝚗𝚝. 𝙱𝚞𝚝, 𝚠𝚑𝚎𝚗 𝚒𝚝 𝚌𝚘𝚖𝚎𝚜 𝚝𝚘 𝚠𝚎𝚒𝚐𝚑𝚒𝚗𝚐 𝚝𝚑𝚎 𝚌𝚘𝚜𝚝𝚜 𝚘𝚏 𝚢𝚘𝚞𝚛 𝚊𝚌𝚝𝚒𝚘𝚗𝚜, 𝚊𝚜𝚔 𝚊𝚠𝚊𝚢.
- 
- ![sticker_6](https://s3.getstickerpack.com/storage/uploads/sticker-pack/kinich-genshin-impact/sticker_1.png?5bd52bb23101f7b272aa35a6a468c0af)
-
 <!--
 **Chimaera-Alebriius/Chimaera-Alebriius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
