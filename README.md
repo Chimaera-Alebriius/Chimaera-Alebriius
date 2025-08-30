@@ -2,7 +2,8 @@
 
 𝑰 𝒅𝒐𝒏'𝒕 𝒃𝒆𝒍𝒊𝒆𝒗𝒆 𝒘𝒆'𝒗𝒆 𝒎𝒆𝒕. 𝑰𝒇 𝒚𝒐𝒖'𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒓𝒆𝒒𝒖𝒆𝒔𝒕 𝒎𝒚 𝒔𝒆𝒓𝒗𝒊𝒄𝒆𝒔, 𝒑𝒍𝒆𝒂𝒔𝒆 𝒃𝒓𝒊𝒆𝒇 𝒎𝒆 𝒐𝒏 𝒕𝒉𝒆 𝒋𝒐𝒃 𝒂𝒏𝒅 𝒔𝒕𝒂𝒕𝒆 𝒘𝒉𝒂𝒕 𝒚𝒐𝒖'𝒓𝒆 𝒘𝒊𝒍𝒍𝒊𝒏𝒈 𝒕𝒐 𝒑𝒂𝒚.
 
-![sticker_4](https://static.wikia.nocookie.net/gensin-impact/images/5/54/Off_We_Go_to_the_Nation_of_Pyro%21_Kinich_1.png/revision/latest/scale-to-width-down/250?cb=20240822115518)
+<img width="1698" height="1664" alt="Kinich - by parody" src="https://github.com/user-attachments/assets/b0250e9d-8585-4c68-ada8-3a40b0e88dee" />
+
 <!--
 **Chimaera-Alebriius/Chimaera-Alebriius** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
